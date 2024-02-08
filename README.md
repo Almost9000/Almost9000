@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Almost9000
 - 👀 I’m interested in building myself a virtual girlfriend which would think I'm funny.
-- 🌱 I’m currently learning how real women think. I think it will take me a while...
+- 🌱 I’m currently learning how real women want...
 
 
 <!---
